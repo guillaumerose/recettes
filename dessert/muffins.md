@@ -4,18 +4,18 @@ Copie de http://www.iletaitunefoislapatisserie.com/2016/05/muffins-americains-au
 
 Temps de préparation : 10 mn / Temps de cuisson : 25 mn / Total : 35 mn
 
-## Ingrédients pour 6 muffins
+## Ingrédients pour 6 muffins (je conseille de doubler les proportions pour ne pas rester sur sa faim)
 
-190 g de farine
-1/2 sachet de levure chimique
-1 pincée de sel
-1 œuf
-90 g de sucre en poudre
-120 ml de lait
-80 g de beurre fondu
-1 cuillère à café de vanille liquide
-140 g de pépites de chocolat noir
-1 cuillère à soupe de cassonade (facultatif)
+* 190 g de farine
+* 1/2 sachet de levure chimique
+* 1 pincée de sel
+* 1 œuf
+* 90 g de sucre en poudre
+* 120 ml de lait
+* 80 g de beurre fondu
+* 1 cuillère à café de vanille liquide
+* 140 g de pépites de chocolat noir
+* 1 cuillère à soupe de cassonade (facultatif)
 
 ### Comment faire
 
